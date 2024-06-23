@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ali59-exe
 - 👀 I’m interested in Professional Taekwondo
 - 🌱 I’m currently learning Phyton Pro
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me alikeremaltan20@gmail.com
 - 😄 Pronouns: ali
 - ⚡ Fun fact: i can breakdance
